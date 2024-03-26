@@ -7,3 +7,4 @@ hhhh
 
 
 Hola mi vida el bagiro esta mien y asooo el bagiro dice Maiu que si se mejora para ti nomas
+turbio no entendi algo adicional
